@@ -17,3 +17,8 @@
 ⑤第五位联合创始人:小皓(真名:洪文皓) Xiao_Hao
 昵称:小皓(真名:洪文皓) ，游戏名：Xiao_Hao
 文天玩WenTianPlay创始人,副董事长,首席人力资源官(CHO).李文飞兄弟,来自于湖北省武汉市,生日2月9日,持股5%
+
+<文天玩WenTian Play 官网>
+国际站 ➔ WenTianPlay.COM
+数据站 ➔ WenTianPlay.net
+中国站 ➔ WenTianPlay.cn
