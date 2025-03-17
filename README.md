@@ -2,7 +2,9 @@
  国际站 ➔ WenTianPlay.COM
  数据站 ➔ WenTianPlay.net
  中国站 ➔ WenTianPlay.cn
+ 
 文天玩WenTianPlay五大联合创始人：
+
 ①第一位联合创始人:苏天彬(真名:李文飞)Wenfei_
 昵称:苏天彬(真名:李文飞)，游戏名：Wenfei_
 文天玩WenTianPlay创始人,董事长,首席执行官(CEO).李文彬哥哥,来自于湖北省天门市,生日2月29日,持股45%
