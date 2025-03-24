@@ -1,4 +1,4 @@
-<文天玩WenTian Play 官网>
+<文天玩WenTian Play 官网 : >
 
  国际站 ➔ https://WenTianPlay.COM
  数据站 ➔ https://WenTianPlay.net
