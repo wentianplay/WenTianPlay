@@ -2,10 +2,13 @@
 
  国际站 ➔ https://www.WenTianPlay.COM
 
- 数据站 ➔ https://www.WenTianPlay.net
-
  中国站 ➔ https://www.WenTianPlay.cn
 
+ 技术站 ➔ https://www.WenTianPlay.net
+
+ 备案站 ➔ https://www.WenTianPlay.top
+
+ 品牌站 ➔ https://www.WenTianWan.com
  
 文天玩WenTianPlay五大联合创始人： 
 
