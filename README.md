@@ -12,7 +12,7 @@
 
  中国站 ➔ https://www.WenTianWan.cn
  
-文天玩WenTianPlay五大联合创始人： 
+文天玩WenTianPlay创始人： 
 
 ①创始人:苏天彬(真名:李文飞) 董事长/首席执行官(CEO)
 
